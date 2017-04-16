@@ -1,2 +1,0 @@
-# hentai-senpai
-hentai-fuckface
